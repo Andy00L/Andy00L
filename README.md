@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Sup humans!🖖 My name is **ANDY NGUEMA LUEMBA**. I'm from the University Of Montréal taking Computer science.🧠
+Sup humans!🖖 My name is **ANDY **. I'm from the University Of Montréal taking Computer science.🧠
 
 I have a huge interest into coding💻 as well as programming⌨️ espeacely Software engineering🥇. Currently studying ...loading...!
 
